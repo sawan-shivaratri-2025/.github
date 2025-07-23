@@ -1,1 +1,3 @@
-# .github
+# *Sawan Shivaratri: Celebrating the Great Night of Shiva*
+## *Shivaratri, also known as the Great Night of Shiva, is a Hindu festival celebrated with great enthusiasm and reverence across the world. This auspicious moonless night, dedicated to the veneration of Lord Shiva, marks a powerful convergence of cosmic energies and a profound opportunity for inner transformation. It holds significant spiritual and cultural importance in the Hindu tradition, symbolizing the overcoming of darkness and ignorance. As we delve into the essence of Shivaratri, let’s explore its symbolism, rituals, and the path it illuminates towards spiritual awakening.* [More details…](https://spiritualkhazaana.com/sawan-shivaratri-2025-great-night-of-shiva/)
+## #shivaratri #shivaratri2025 #mahashivaratri
